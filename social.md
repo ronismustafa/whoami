@@ -6,7 +6,7 @@ My current side project is [Omnifood App](https://omnifood-rns.netlify.app/)
 
 [GitHub 🖥️](https://github.com/ronismustafa/)
 
-[Instagram 😍](https://facebook.com/ronis2h/)
+[Instagram 😍](https://instagram.com/ronismustafa/)
 
 [Facebook 📙](https://facebook.com/ronis2h/)
 
