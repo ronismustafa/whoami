@@ -9,6 +9,9 @@ Seeking people that values hard work, dedication, and passion.
 ## Hobbies
 
 -👨‍💻 Coding
+
 -⚽ Soccer
+
 -🎬 Movies
+
 -🎣 Fishing
